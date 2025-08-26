@@ -1,5 +1,6 @@
-# projectfrysker
-The project owner is Frietz Ranz
-Age: 18 y/0
-Birthplace: Olongapo City
-Studies at Gordon College
+# projectfrysker 💀💀💀
+
+🧑‍🦲My name is Frietz Ranz Bayog
+🧓I am 18 years old
+♟️I love chess
+🌏 Huwag gawing mundo ang tao, dahil ang tao ay tao lamang, habang ang mundo ay by IVoS 🫂
