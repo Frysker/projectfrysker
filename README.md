@@ -1,3 +1,5 @@
 # projectfrysker
-Me le Frietz
-Le hobby is playing games, reading novels, watching mysteries
+The project owner is Frietz Ranz
+Age: 18 y/0
+Birthplace: Olongapo City
+Studies at Gordon College
